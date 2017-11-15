@@ -38,4 +38,13 @@ Having trouble with Pages? Check out our [documentation](https://help.github.com
 
 ## doiukotonano
 ~~korehasugoi~~
+
 **yokuwakaranaino**
+
+[どこに飛ぶかしら](https://www.yahoo.co.jp/)
+
+***
+1. まずは
+1. こうして
+1. さらに
+1. こうじゃ
